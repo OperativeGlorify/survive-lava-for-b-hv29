@@ -1,4 +1,4 @@
-
+smart survive lava for brainrots Script offers the most advanced survive lava for brainrots Script, with anti-ban and auto-farm. Perfect for
 
 
 
